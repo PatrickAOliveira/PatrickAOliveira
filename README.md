@@ -16,7 +16,6 @@ De momento trabalho como atendente de lanchonete, tanto como caixa e atendimento
 
 ## Você pode entrar em contato comigo através das seguintes formas:
 - Email: patrickoli99@gmail.com
-- Telefone/Whatsapp: (12) 99153-3076
 
 
 <!--
